@@ -1,4 +1,7 @@
-[![MasterHead](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fko4oakt2yq291.gif)
+<h1>WHO-AM-I</h1>
+
+![logo](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0095794c-6589-497e-8f7f-4fdf36520fc9/de7wktw-b7d1006b-0634-4be5-87f4-be0f2f620484.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAwOTU3OTRjLTY1ODktNDk3ZS04ZjdmLTRmZGYzNjUyMGZjOVwvZGU3d2t0dy1iN2QxMDA2Yi0wNjM0LTRiZTUtODdmNC1iZTBmMmY2MjA0ODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.7wiAcNeALOETwWBFp18sjIcaKCz4CDLA18MeMSJCkfw)
+
 <h1 align="center">HЄГГѲ ✌,丨'm Hѳѫѳ$аpїёп !!!🙃</h1>
 <h3 align="center">A passionate Friki de la computadora!!!</h3>
 <img align="right" alt="Coding" width="400" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a7717328-6939-46dc-b54f-93eb0fd051d9/d9t8coa-68b88586-cf26-468d-95fa-e388564b879e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2E3NzE3MzI4LTY5MzktNDZkYy1iNTRmLTkzZWIwZmQwNTFkOVwvZDl0OGNvYS02OGI4ODU4Ni1jZjI2LTQ2OGQtOTVmYS1lMzg4NTY0Yjg3OWUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D2JeccFU5EYaa8D8yasPABUjxYRG2p63PfU0d0Ay2Qg">
